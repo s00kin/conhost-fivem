@@ -6,3 +6,5 @@
 
 
 # Sokin Company Copyright © The source is only for a personal use. You are not allowned to sell it.
+
+Screenshot - https://imgur.com/a/yRRQpZS
